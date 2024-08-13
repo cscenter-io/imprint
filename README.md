@@ -12,7 +12,7 @@ Florian Brandt
 
 **Kontakt:**  
 Telefon: 02156-9149989  
-E-Mail: [postmaster@mail.dev.cscenter.io](mailto:postmaster@mail.dev.cscenter.io)  
+E-Mail: [florian@brandt.app](mailto:florian@brandt.app)  
 
 **Haftungsausschluss:**  
   
